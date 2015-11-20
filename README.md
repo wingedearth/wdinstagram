@@ -9,7 +9,7 @@
 ## Names
 - <a href="https://avatars0.githubusercontent.com/u/14636217?v=3&s=460">Andrew A. Anissi</a>
 - James Ewing
-- ANTHONY "Tony" LEE
+- <a href="http://static.comicvine.com/uploads/original/11123/111231848/4602082-6248423626-tony9.jpg">Anthony "Tony" Lee</a>
 - Taradactyl
 - Rachel Bascetta
 
